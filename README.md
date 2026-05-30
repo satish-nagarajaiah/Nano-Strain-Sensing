@@ -1,1 +1,1 @@
-visit https://satishnagarajaiah.rice.edu for full view
+visit https://satish-nagarajaiah.github.io/Nano-Strain-Sensing/ for full view
